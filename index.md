@@ -14,3 +14,5 @@ He is friendly and does many things for the sake of the living animals on this p
 Toecan said:
 > I’ve always been more interested
 > in the future than in the past.
+
+<img src =""C:\Users\Tobia\Desktop\Toecan.jpg"/>
